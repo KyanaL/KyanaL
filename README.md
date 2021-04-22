@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @KyanaL
-- 👀 I’m interested in drawing
-- 🌱 I’m currently learning school
+- 👋 Hi, I’m Kyana :)
+- 👀 I really enjoy drawing and gaming.
+- 🌱 I’m currently learning in online school.
 - 💞️ I’m looking to collaborate with you guys!
 - 📫 How to reach me: email or discord @Milk#5885
 <!---
